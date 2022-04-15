@@ -1,0 +1,2 @@
+# sinau
+Belajar yang giat
